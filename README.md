@@ -10,3 +10,6 @@ why ml
 [Link to be displayed](Actual_Link)
 [tej mahal](https://th.bing.com/th/id/OIP.g542xv4xAJmCCDbMu3UGkgHaGC?w=195&h=180&c=7&r=0&o=5&pid=1.7)
 [charminar](https://wallpaperaccess.com/full/4495724.jpg)
+[birla mandir](https://th.bing.com/th/id/OIP.0chzL_6r-f5xXyop92YsSAHaGr?rs=1&pid=ImgDetMain)
+[golconda](https://th.bing.com/th/id/OIP.BgjC6E1EWNHsv-9uBA7vSQHaE4?rs=1&pid=ImgDetMain)
+[tank bund](https://th.bing.com/th/id/OIP.xE1-rZD1n6iUO_vkDSOwuQHaE8?w=270&h=180&c=7&r=0&o=5&pid=1.7)
